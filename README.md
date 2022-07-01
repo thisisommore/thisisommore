@@ -1,4 +1,4 @@
-# 👋🏼 I am Om, 
+# 👋🏼 I am Om
 ### I am here [linkedin](https://unstop.com/competitions/348170/team-details/)
 ### and here [twitter](https://twitter.com/devommore)
 ### and [everywhere](https://ommore.me)
